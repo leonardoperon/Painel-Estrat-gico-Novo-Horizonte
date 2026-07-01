@@ -1,0 +1,1 @@
+# Painel-Estrat-gico-Novo-Horizonte
